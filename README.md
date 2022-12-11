@@ -1,5 +1,5 @@
 # 💫 About Me:
-kdfjlskdjflksdflksdlfk<br>flsdkjflksdjflskdjfs<br>sldkfjlskdfjlskdfj<br>dlfkjslkdfjlsdf
+Software engineering student | Blockchain developer | Founder of Women In Blockchain Morroco Chapter
 
 
 ## 🌐 Socials:
